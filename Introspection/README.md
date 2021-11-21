@@ -32,4 +32,4 @@ the oppurtunities available at amfoss to enrich my knowledge and will try to upk
 
 _When i first read the tasks i was dumbstruck as i knew nothing about coding or related subjects.But when i started to do the tasks by googling 
 and refering from here and there i found it exciting.It was really a good experience for a noob like me.I was able to learn something from it.
-So i would say the selection process is very good_.
+But I was only able to do only two tasks and am very sad about it. So overall I think it was a good experience.
